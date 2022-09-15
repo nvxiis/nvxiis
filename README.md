@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and codeine cartels, a young rebel against the system.
 - 🐎 I’m currently learning to survive the Rodeo ...
 - 🔥 I’m looking to collaborate on a mood of Fuck This Shit.
-- 📫 How to reach me -> @notnvxiis on Twitter.
+- 📫 How to reach me -> B̷̧̛̯̟͍̼̫̭̙̍̈͠R̴͖̪̪͚̖̮͖͚̫͉͋́͝U̶͌̇̽̎ͅȞ̴̘̫̓̒̅̆̀̈́̑̅͜
 ...  🆄🆃🅾🅿🅸🅰  ...
 
 <!---
